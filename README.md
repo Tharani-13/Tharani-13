@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tharani-13
-- 👀 I’m interested in Web Developing
+- 👀 I’m interested in Web Developement
 - 🌱 I’m currently learning 
 - 💞️ 
 - 📫
